@@ -69,5 +69,5 @@
    - Al-Buruj (85) : The Mansions of the Stars: recounts the story of a group of believers who were thrown into a pit of fire for their faith. The surah emphasizes the steadfastness of the believers and the consequences of injustice and persecution
    - Al-Qamar (54): References to past prophets and their communities
    - Nuh (71) Noah: Story of Prophet Noah and his people.
-   - Al-Masad (111):Twisted Strands: Condemns Abu Lahab and his wife for their opposition to the Prophet Muhammad and warns of their punishment
+   - Al-Masad (111): Twisted Strands: Condemns Abu Lahab and his wife for their opposition to the Prophet Muhammad and warns of their punishment
    - Al-Fil (105): the elephants: The story of the elephant and the divine protection of the Kaaba
