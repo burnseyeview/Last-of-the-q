@@ -29,9 +29,9 @@
 3. **Prophethood and Revelation:**
    - As-Saff (61):The Ranks: Discusses the role and challenges of prophets.
    - Al-Jinn (72): the jinn: Focuses on the revelation and those from the unseen world who believe in it.
-   - Al-Qalam (68): the pen:  Defends the Prophet's mission and integrity.
+   - Al-Qalam (68): the pen: Defends the Prophet's mission and integrity.
    - Al-Inshiqaq (84) The sundering: Talks about the Quran as a reminder.
-  - Ad-Duha (93): the morning hours: Comforts and reassures the Prophet Muhammad during a time of personal distress, and emphasizes God's blessings and support.
+   - Ad-Duha (93): the morning hours: Comforts and reassures the Prophet Muhammad during a time of personal distress, and emphasizes God's blessings and support.
    - Al-Inshirah (94) Comfort: inComforts and consoles the Prophet Muhammad and reminds him of God's favors, encouraging patience and gratitude
    - Al-Alaq (96): the clot: Describes the first revelation to the Prophet Muhammad and emphasizes the importance of seeking knowledge and the consequences of arrogance.
    - Al-Qadr (97):Power, Fate: Describes the Night of Decree (Laylat al-Qadr), the significance of this blessed night in the month of Ramadan, and the honor of the Quran.
