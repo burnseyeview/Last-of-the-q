@@ -1,6 +1,6 @@
 1. **Divine Sovereignty:**
    - Al-Hadid (57): Iron: mphasizes God's knowledge and power.
-   - Al-Hashr (59): The Exile: Focuses on God's attributes and the consequences of opposing His guidance.
+   - Al-Hashr (59): The Exile: Focuses on God's attributes and the consequences of opposing His guidance. 
    - Al-Mulk (67): sovereignty, Kingdom: Discusses God's dominion over all creation.
    - Al-Ikhlas (112): A declaration of God's oneness.
    - Ash-Shams (91): The Sun: Reflects on the sun and other celestial bodies as signs of God's power, and admonishes against wickedness and righteousness
@@ -63,8 +63,8 @@
    - Al-Kafirun (109): Unbelievers: Addresses the rejection of polytheism by the Prophet Muhammad and the refusal to compromise on monotheistic beliefs.
    - Al-A'la (87): The Most High, Glory To Your Lord In The Highest: Calls to remember God's name and the Quran.
    - Al-Munafiqun (63): The Hypocrites: contrasts the true believers with the hypocrites, highlighting the importance of sincerity in faith and actions.
-
-6.  **Historical accounts:**
+   
+6. **Historical accounts:**
    - Al-Fajr (89): The Dawn: narrates the stories of past civilizations that were punished for their transgressions
    - Al-Buruj (85) : The Mansions of the Stars: recounts the story of a group of believers who were thrown into a pit of fire for their faith. The surah emphasizes the steadfastness of the believers and the consequences of injustice and persecution
    - Al-Qamar (54): References to past prophets and their communities
