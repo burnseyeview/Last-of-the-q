@@ -1,5 +1,5 @@
 1. **Divine Sovereignty:**
-   - Al-Hadid (57): Iron: mphasizes God's knowledge and power.
+   - Al-Hadid (57): Iron: Emphasizes God's knowledge and power.
    - Al-Hashr (59): The Exile: Focuses on God's attributes and the consequences of opposing His guidance. 
    - Al-Mulk (67): sovereignty, Kingdom: Discusses God's dominion over all creation.
    - Al-Ikhlas (112):the purity: A declaration of God's oneness.
@@ -9,7 +9,7 @@
    - Quraish (106): Quraysh: Emphasizes God's protection and blessings upon the tribe of Quraish, who were the custodians of the Kaaba.
    - Al-Kawthar (108): Abundance: Emphasizes the abundance of God's blessings, particularly the gift of Al-Kawthar (a river in Paradise), and the importance of gratitude and devotion.
    - Al-Ikhlas (112): Sincerity: Affirms the oneness of God (Tawhid) and His uniqueness, rejecting any association with Him.
-   - Al-Tariq (86) The Knocker: Emphasizes the creation as a sign of God's power and the coming judgment.
+   - Al-Tariq (86): The Knocker: Emphasizes the creation as a sign of God's power and the coming judgment.
 
 2. **Social Justice and Law:**
    - Al-Mujadila (58): She who disputed: Rights of women, reformed zihar divorce
