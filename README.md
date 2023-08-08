@@ -2,10 +2,10 @@
    - Al-Hadid (57): Iron: Emphasizes God's knowledge and power.
    - Al-Hashr (59): The Exile: Focuses on God's attributes and the consequences of opposing His guidance. 
    - Al-Mulk (67): sovereignty, Kingdom: Discusses God's dominion over all creation.
-   - Al-Ikhlas (112):the purity: A declaration of God's oneness.
+   - Al-Ikhlas (112): The purity: A declaration of God's oneness.
    - Ash-Shams (91): The Sun: Reflects on the sun and other celestial bodies as signs of God's power, and admonishes against wickedness and righteousness
-   - Al-Layl (92): the night: Reflects on the night and day as signs of God's creation, and emphasizes the reward for good deeds and the consequences of evil deeds.
-   - At-Tin (95): the fig: Draws attention to the significance of the creations of God as signs of His greatness and the importance of faith and good deeds
+   - Al-Layl (92): The Night: Reflects on the night and day as signs of God's creation, and emphasizes the reward for good deeds and the consequences of evil deeds.
+   - At-Tin (95): The Fig: Draws attention to the significance of the creations of God as signs of His greatness and the importance of faith and good deeds
    - Quraish (106): Quraysh: Emphasizes God's protection and blessings upon the tribe of Quraish, who were the custodians of the Kaaba.
    - Al-Kawthar (108): Abundance: Emphasizes the abundance of God's blessings, particularly the gift of Al-Kawthar (a river in Paradise), and the importance of gratitude and devotion.
    - Al-Ikhlas (112): Sincerity: Affirms the oneness of God (Tawhid) and His uniqueness, rejecting any association with Him.
